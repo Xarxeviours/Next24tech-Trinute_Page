@@ -1,0 +1,1 @@
+# Next24tech-Trinute_Page
